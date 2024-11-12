@@ -1,0 +1,1 @@
+Le mafe est un plat Sénégalais fait à base de patte d'arachide.
